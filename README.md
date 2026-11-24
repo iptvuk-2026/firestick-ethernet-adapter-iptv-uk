@@ -1,0 +1,1 @@
+# firestick-ethernet-adapter-iptv-uk
